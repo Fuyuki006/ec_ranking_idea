@@ -1,0 +1,1 @@
+# ec_ranking_idea
